@@ -57,7 +57,7 @@ This privacy policy may be updated from time to time. Any changes will be posted
 
 If you have any questions or requests, please contact us at:
 
-📧 [muratksml4@gmail.com](mailto:muratksml4@gmail.com)
+[muratksml4@gmail.com](mailto:muratksml4@gmail.com)
 
 ## Effective Date
 
