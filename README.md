@@ -1,0 +1,1 @@
+DoganSimulator-PrivacyPolicy
